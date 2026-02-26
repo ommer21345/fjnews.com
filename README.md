@@ -1,1 +1,1 @@
-# fjfnews.com
+# fjnews.com
